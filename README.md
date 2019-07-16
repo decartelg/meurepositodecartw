@@ -3,3 +3,4 @@ A Workana não permite pagamentos fora.
 Mas a minha conta do PayPal tem problemas.
 Quando tudo tiver pronto poderias me pagar por bitcoins?
 Por favor.
+Meu whats: +244 938 604 361
